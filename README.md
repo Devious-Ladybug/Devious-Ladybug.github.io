@@ -2,8 +2,8 @@
 ![image](https://github.com/Devious-Ladybug/Devious-Ladybug.github.io/assets/173640778/4198c59d-2992-4058-907f-8020ad9d0581)
 
 
-Verse 1
-Skibidi toilet will be mine, yuh
+Verse 1: 
+ Skibidi toilet will be mine, yuh
 Ohio town, yeah
 Diamonds to mine
 I'm on that big sigma grind
@@ -11,7 +11,7 @@ Worried 'bout impostors
 I'm way too sus, yeah
 For sigma trust
 
-Chorus: SpongeBob
+Chorus: 
 Skibidi toilet will be mine, yuh
 Ohio gyatt, rizz
 Rizzlers on my mind
@@ -21,7 +21,7 @@ When you're not around me
 With sigmas on my mind
 
 
-Outro: Travis Scott and SpongeBob
+Outro: 
 Skibidi toilet will be mine, yuh
 Ohio gyatt, rizz
 Rizzlers on my mind

@@ -7,30 +7,22 @@ Verse 1:
 Ohio town,
 Diamonds to mine
 I'm on that big sigma grind.
-
 Worried 'bout impostors
-
 I'm way too sus, yeah.
 For sigma trust yuh
 
 Chorus: 
 Skibidi toilet will be mine, yuh.
-
 Ohio gyatt, rizz.
-
 Rizzlers on my mind
-
 Skibidi toilet will be mine, yeah
 When you're not around me
 with sigmas on my mind yuh
 
-
 Outro: 
 Skibidi toilet will be mine, yuh.
-
 Ohio gyatt, rizz
-Rizzlers on my mind.
-
+Rizzlers on my mind
 Skibidi toilet will be mine.
 
 

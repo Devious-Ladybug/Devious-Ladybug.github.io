@@ -4,28 +4,34 @@
 
 Verse 1: 
  Skibidi toilet will be mine, yuh
-Ohio town, yeah
+Ohio town,
 Diamonds to mine
-I'm on that big sigma grind
+I'm on that big sigma grind.
+
 Worried 'bout impostors
-I'm way too sus, yeah
-For sigma trust
+
+I'm way too sus, yeah.
+For sigma trust yuh
 
 Chorus: 
-Skibidi toilet will be mine, yuh
-Ohio gyatt, rizz
+Skibidi toilet will be mine, yuh.
+
+Ohio gyatt, rizz.
+
 Rizzlers on my mind
 
 Skibidi toilet will be mine, yeah
 When you're not around me
-With sigmas on my mind
+with sigmas on my mind yuh
 
 
 Outro: 
-Skibidi toilet will be mine, yuh
+Skibidi toilet will be mine, yuh.
+
 Ohio gyatt, rizz
-Rizzlers on my mind
-Skibidi toilet will be mine
+Rizzlers on my mind.
+
+Skibidi toilet will be mine.
 
 
 [Homework](https://devious-ladybug.github.io/1.html)
